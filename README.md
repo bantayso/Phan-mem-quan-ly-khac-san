@@ -72,7 +72,7 @@ Công ty TNHH Giải Pháp Bàn Tay Số
 
 382F1 Nam Kỳ Khởi Nghĩa, Phường 8, Quận 3, Tp. Hồ Chí Minh, Việt Nam
 
-Tel: (+84-8) 35267553 - (+84-8)3526 8244 - Fax:(84-8)3526 7102
+Tel: (+84-8) 38 209 779 - 0909 599 488
 
 Email: info@bantayso.com
 
